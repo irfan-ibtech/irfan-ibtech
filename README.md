@@ -3,6 +3,8 @@
 Founder & CEO @ **IBTech** | Full-Stack Web Developer | AI & Cloud Engineer  
 Building **ORION — an AI-native Organizational Intelligence System**
 
+**Portfolio: https://ibtechglobal.com/**
+
 
 ---
 
